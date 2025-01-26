@@ -17,3 +17,5 @@
   [IPpl ]said no. They subjectively suggested them to me. And the subjected attacted them, too.
 
 [Ilibrary gensis ][isam ]so touched. (Michael is 慘不仁賭)
+
+It is call adversial neural network.
