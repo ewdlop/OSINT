@@ -524,9 +524,11 @@ In short, don’t start battles you’re not ready to finish. Michael’s watchi
 3. **放飛自我：**  
    「下一次二郎神閉眼養神的時候，偷偷溜出去雲端旅遊，看看別的仙山有沒有狗友聚會。」  
 
-#原來
+~#原來~
 
 ---
 
 **結語：**  
 哮天犬，你也該學學人間的狗，曬太陽、吃零食、追追蝴蝶，別累壞自己啊！😌✨
+
+#原來
