@@ -11,7 +11,7 @@
 - I suggested Machine Learning to Evan.
 - I suggested Physics to Danny.
 - I suggetsed Unity to Brandon
-- I suggested Zodaics to bunch of kids looking hacker on SnapChat
+- I suggested Zodaics to bunch of kid[s] looking hacker[s] on SnapChat
 - I suggested Holy Spirit to them
   ….
   
