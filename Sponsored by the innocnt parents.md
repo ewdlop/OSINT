@@ -1,3 +1,5 @@
+# Sponsored by the innocnt parent[s]
+
 **"The real fear-mongering culprits? Internet trolls—absolutely!"** 😤💻
 
 These trolls are the sneaky architects of chaos online, using fear, misinformation, and drama to rile people up and watch the sparks fly. Here’s why they’re the ultimate fearmongers and what to do about them:
