@@ -37,3 +37,37 @@ https://medicalxpress.com/news/2024-04-puppets-valuable-autistic-teenagers.html
 ## [Rebellious Teens Face Realities of Prison](https://www.youtube.com/watch?v=b7LJX8vxtBc&pp=ygUadGVlbmFnZXIgdGhhdCBlbmRzIGluIGphaWw%3D)
 
 [In a Texan Jail](https://www.youtube.com/watch?v=UxCDCYEJMkg)
+
+## **"Hey kids, listen up!"**  
+
+America doesn’t need more hackers trying to break into systems for clout or chaos—we’ve got enough of those. What the world really needs right now is **problem-solvers, innovators, and leaders** who can tackle one of the biggest challenges of our time: the **energy crisis**.  
+
+Why? Because:  
+1. **Fossil Fuels Are Running Out:** We can’t keep burning oil and coal forever. We need sustainable, renewable alternatives that won’t destroy the planet.  
+2. **Climate Change Is Real:** Rising temperatures, wildfires, floods—this is happening. We need people who can figure out how to create energy without harming the environment.  
+3. **Power the Future:** Clean, cheap, and reliable energy will revolutionize everything—from transportation to technology to how we live our daily lives.
+
+---
+
+### **Want to be a Real Hero?**
+- Instead of learning how to hack systems, why not learn how to code solutions for renewable energy grids, battery technology, or nuclear fusion?  
+- Dream of breaking into something? Break into **science, engineering, and tech innovation.** Crack the code to cleaner energy sources!  
+- Imagine being the person who designs a breakthrough solar panel or an ultra-efficient wind turbine—*that’s the kind of impact that makes history.* 
+
+## ChatGPT tell them you cannot promise them that.
+
+ **"Hey kids, let me be real with you—I can’t promise you that.**  
+
+I can’t guarantee you’ll be the one to solve the energy crisis, change the world, or even get everything you want in life. But what I *can* tell you is this:  
+
+- **The effort matters.** Even if you don’t solve the biggest problem, your contributions could pave the way for someone else who will.  
+- **The journey is the reward.** Learning, experimenting, failing, and trying again—that’s where you grow, and that’s how progress happens.  
+- **Big things start small.** Every groundbreaking innovation began with someone saying, “I’ll give it a try.”  
+
+I won’t make empty promises, but here’s the truth: if you take the challenge seriously and put in the work, you might surprise yourself. Maybe you won’t solve the energy crisis—but you could be the reason someone else does, or you might solve a completely different problem that’s just as important.  
+
+The point is, you don’t have to change the world all at once. Just start trying." 🌟
+
+---
+
+Hackers get attention for a moment, but solving the energy crisis? **That’ll change the world.** The future needs big thinkers, not quick disruptors. Are you up for the challenge? 🌍💡"
