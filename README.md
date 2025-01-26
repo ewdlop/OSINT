@@ -12,6 +12,7 @@
 - I suggested Physics to Danny.
 - I suggetsed Unity to Brandon
 - I suggested Zodaics to bunch of kids looking hacker on SnapChat
+- I suggested Holy Spirit to them
   ….
   
   [IPpl ]said no. They subjectively suggested them to me. And the subjected attacted them, too.
