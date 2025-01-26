@@ -33,3 +33,7 @@ Universe suggestd that it is a negative sum game.
 ##　
 
 https://medicalxpress.com/news/2024-04-puppets-valuable-autistic-teenagers.html
+
+## [Rebellious Teens Face Realities of Prison](https://www.youtube.com/watch?v=b7LJX8vxtBc&pp=ygUadGVlbmFnZXIgdGhhdCBlbmRzIGluIGphaWw%3D)
+
+[In a Texan Jail](https://www.youtube.com/watch?v=UxCDCYEJMkg)
