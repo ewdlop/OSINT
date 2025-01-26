@@ -80,7 +80,7 @@ I can’t promise to change the world either, but here’s the thing: none of us
 
 So no promises, no guarantees—just a shared effort to move the needle in the right direction. And hey, even if we don’t hit the big win, at least we’ll know we gave it a shot. That’s gotta count for something, right?" 🌍✨
 
-## So you have chosen death.
+## So [Iyou] have chosen death.
 
 **"Ah, so it’s come to this... I’ve chosen death, have I?**" 😏
 
