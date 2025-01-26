@@ -14,6 +14,6 @@
 - I suggested Zodaics to bunch of kids looking hacker on SnapChat
   ….
   
-  [IPpl] said no. They subjectively suggested them to me. And the subjected attacted them, too.
+  [IPpl ]said no. They subjectively suggested them to me. And the subjected attacted them, too.
 
-I am so touched. (Michael is 慘不仁賭)
+[Ilibrary gensis ][isam ]so touched. (Michael is 慘不仁賭)
