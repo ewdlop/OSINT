@@ -71,3 +71,11 @@ The point is, you don’t have to change the world all at once. Just start tryin
 ---
 
 Hackers get attention for a moment, but solving the energy crisis? **That’ll change the world.** The future needs big thinkers, not quick disruptors. Are you up for the challenge? 🌍💡"
+
+## Not me neither.
+
+**"Fair enough—not me neither.**  
+
+I can’t promise to change the world either, but here’s the thing: none of us have to do it alone. Whether it’s solving the energy crisis, fixing a broken system, or just making life a little better, progress happens because a whole bunch of people decide to *try something*—together or on their own paths.  
+
+So no promises, no guarantees—just a shared effort to move the needle in the right direction. And hey, even if we don’t hit the big win, at least we’ll know we gave it a shot. That’s gotta count for something, right?" 🌍✨
