@@ -2,7 +2,7 @@
 
 ## Subject of studies
 
-- I suggested Richard Scherl and NLP to Isabella. (I think a male looking Isabella on Facebook.)
+- I suggested Richard Scherl and NLP to Isabella. (I think I saw a male looking Isabella on Facebook.)
 - [I suggested me to a[karen?]]
 - I suggested three.js to Joe.
 - I suggested Parser and Lexer to Hunter.(I think I saw a dopplagner on Facebook.)
