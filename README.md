@@ -1,15 +1,18 @@
 # OSINT
+
+## Subject of studies
+
 - I suggested Richard Scherl and NLP to Isabella.
 - I suggested three.js to Joe.
 - I suggested Parser and Lexer to Hunter.
 - I suggested Kai to David.
-- I suggested Mathematics to Esmerlda.
+- I suggested Mathematics to Esme.(She is cringy.)
 - I suggested Abstract Algebra to Matthew Harper.
 - I suggested Machine Learning to Evan.
 - I suggested Physics to Danny.
 - I suggetsed Unity to Brandon
   ….
   
-  I[Ppl] said no. They subjected suggested them to me. And the subjected attacted them, too.
+  I[Ppl] said no. They subjectively suggested them to me. And the subjected attacted them, too.
 
 I am so touched. (Michael is 慘不仁賭)
