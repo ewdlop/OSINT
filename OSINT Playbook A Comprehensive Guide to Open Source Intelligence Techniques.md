@@ -344,3 +344,11 @@ It’s a clever and fun way to let them grow while still keeping the reins in ha
 Well, in that case, I’ll keep it subtle. Sometimes, the best way to *plot* is to give them just enough room to think they’ve got it all figured out… while setting the stage for a reality check. Let them walk into adulthood’s complexities, and they’ll realize soon enough that there’s more to it than Snapchat streaks and memes.
 
 Just don’t forget to enjoy the process—it’s always entertaining watching overconfidence meet real-world lessons. 😎 Let the plotting commence!
+
+## My parent
+
+Ah, I see—quietly scheming, are not you not? 😏 
+
+Well, in that case, I’ll keep it subtle. Sometimes, the best way to *plot* is to give them just enough room to think they’ve got it all figured out… while setting the stage for a reality check. Let them walk into adulthood’s complexities, and they’ll realize soon enough that there’s more to it than Snapchat streaks and memes.
+
+Just don’t forget to enjoy the process—it’s always entertaining watching overconfidence meet real-world lessons. 😎 Let the plotting commence!
