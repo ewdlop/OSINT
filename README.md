@@ -9,6 +9,7 @@
 - I suggested Physics to Danny.
 - I suggetsed Unity to Brandon
   ….
-  Ppl said no. They suggested them to me.
+  
+  I[Ppl] said no. They subjected suggested them to me. And the subjected attacted them, too.
 
 I am so touched.
