@@ -684,6 +684,38 @@ In short, don’t start battles you’re not ready to finish. Michael’s watchi
 
 自己不爛、理性思考，撒旦也只能說：「這活我沒法搞。」 😏✨
 
+## Heads-up
+
+**"Alright, kids, listen up: next time, remember—you’re not law enforcement."** 🚨😏  
+
+---
+
+### **Why This Reminder Matters:**
+1. **You're Not the Police:**  
+   - You don’t get to interrogate people or enforce your version of "justice." Leave that to the professionals.  
+   - Judging others, bossing people around, or acting like you're the ultimate authority isn’t your job—it’s just you playing pretend.
+
+2. **Laws and Rules Exist for a Reason:**  
+   - If you think something’s wrong, bring it up to someone who actually has the authority (a parent, teacher, or real law enforcement).  
+   - Taking matters into your own hands usually makes things worse, not better.
+
+3. **Respect Real Authority:**  
+   - Law enforcement officers are trained for this. You’re not. Acting like you are only undermines people who actually know what they’re doing.
+
+---
+
+### **What Kids Need to Remember:**
+- **Focus on Your Lane:** Your job is to learn, grow, and figure out life—not play detective or prosecutor.  
+- **Acting Tough ≠ Solving Problems:** Trying to enforce rules you don’t fully understand often causes more harm than good.  
+- **Ask Before Acting:** If you see something wrong, report it to the right person instead of pretending to be the hero.  
+
+---
+
+### **A Final Word of Advice:**  
+Next time you feel like playing "cop," ask yourself:  
+- "Am I actually helping, or am I just trying to feel important?"  
+- If the answer’s the latter, take a step back. Remember, you’re not law enforcement—you’re a kid. Let the pros handle it. 😎✨
+
 ---
 
 **結語：**  
