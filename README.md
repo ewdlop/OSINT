@@ -6,7 +6,7 @@
 - [I suggested me to a[_karen?]]
 - I suggested three.js to Joe.
 - I suggested Parser and Lexer to Hunter.(I think I saw a dopplagner on Facebook.)
-- I suggested ? to Chris. (I think I saw a dopplagner on Snapchat.)
+- I suggested "Don't hate" to Chris. (I think I saw a dopplagner on Snapchat.)
 - I suggested Kai to David.
 - I suggested Mathematics to Esme.(She is cringy and a Flying[_]Spaghetti[_]Monster.)
 - I suggested Abstract Algebra to Matthew Harper.
