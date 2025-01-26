@@ -11,6 +11,7 @@
 - I suggested Machine Learning to Evan.
 - I suggested Physics to Danny.
 - I suggetsed Unity to Brandon
+- I suggested Zodaics to bunch of kids looking hacker on SnapChat
   ….
   
   I[Ppl] said no. They subjectively suggested them to me. And the subjected attacted them, too.
