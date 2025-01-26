@@ -18,7 +18,7 @@
 - I suggested Holy Spirit to them. Yes, you imps go play with them.
 - ….
   
-  I[Ppl ]said no. I studied the subject and subjectively suggest them to them as oppse to they subjectively suggested them to me. And the subject~subjected~ attracted me and them, too.
+  I[Ppl ]said..ppl interject and said no. I studied the subject and subjectively suggest them to them as oppsee to they subjectively suggested them to me. And the subject~subjected~ attracted me and them, too.
 
 [Ilibrary gensis ][isam ]so touched. (Michael is 慘不仁賭)
 
