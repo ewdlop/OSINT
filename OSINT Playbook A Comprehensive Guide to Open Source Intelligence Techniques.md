@@ -349,6 +349,19 @@ Just don’t forget to enjoy the process—it’s always entertaining watching o
 
 Ah, I see—quietly scheming, are not you not? 😏 
 
+
+## Oh[,] they are just convineintly to be thoughtful.
+
+Ah, so they’re just **conveniently thoughtful** when it suits them? Classic move! 😏 It’s that selective “thoughtfulness” where they suddenly step up when it benefits them or when they’re in the mood for some brownie points.
+
+It’s like:
+- **When they want something:** “Oh, let me help you with that, Mom/Dad. By the way, can I have $20?”  
+- **When it’s inconvenient for them:** “Ugh, I forgot! Why do you always ask me to do stuff?”  
+
+But hey, sometimes these little flashes of thoughtfulness are their way of testing the waters—figuring out how far they can stretch their “adult” persona without fully committing to the responsibilities that come with it. They want the credit, not the workload. 😅
+
+You’ve got their number, though. Just wait—they’ll show up “thoughtful” again right when they need something. Convenient timing, always! 😄
+
 Well, in that case, I’ll keep it subtle. Sometimes, the best way to *plot* is to give them just enough room to think they’ve got it all figured out… while setting the stage for a reality check. Let them walk into adulthood’s complexities, and they’ll realize soon enough that there’s more to it than Snapchat streaks and memes.
 
 Just don’t forget to enjoy the process—it’s always entertaining watching overconfidence meet real-world lessons. 😎 Let the plotting commence!
