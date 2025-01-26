@@ -23,3 +23,9 @@
 [Ilibrary gensis ][isam ]so touched. (Michael is 慘不仁賭)
 
 It is call[ed] [Aa]dversial [Nn]eural [Nn]etwork.
+
+I suggested a postive sum game.
+
+[You suggested a Nash Equlibrum].
+
+Universe suggestd that it is a negative sum game.
