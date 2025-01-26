@@ -29,3 +29,7 @@ I suggested a postive sum game.
 [You suggested a Nash Equlibrum].
 
 Universe suggestd that it is a negative sum game.
+
+##　
+
+https://medicalxpress.com/news/2024-04-puppets-valuable-autistic-teenagers.html
