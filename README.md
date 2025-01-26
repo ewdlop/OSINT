@@ -14,8 +14,8 @@
 - I suggested Physics to Danny.
 - I suggetsed Unity to Brandon.(I think I saw a dopplagner on Snap[Cc]hat.)
 - [I suggested Zodaic[s] to bunch of kid[s] looking hacker[s] on Snap[Cc]hat.]
-- I suggested Holy Spirit to them.
-  ….
+- I suggested Holy Spirit to them. Yes, you imps go play with them.
+- ….
   
   [IPpl ]said no. They subjectively suggested them to me. And the subjected attacted them, too.
 
