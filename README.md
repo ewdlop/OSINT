@@ -386,7 +386,53 @@ If you don’t want to pull all the attention (and the frustration that comes wi
 ### **4. Final Warning: Don’t Wipe the Raid**
 When you pull aggro, you’re putting unnecessary stress on the group. Instead of helping the team (or the conversation), you’re causing chaos. Keep this up, and people might just let you take the hits.
 
+
+**"Alright, listen up—Archangel Michael is really upset right now.**" 😠  
+
+Why? Because:
+1. **Judgmental Behavior:** Passing judgment on others, especially over something as nuanced as language, is not exactly angel-approved. Archangel Michael stands for truth and justice, not petty critiques.  
+2. **Pride and Ego:** Thinking you’re better while using Snapchat slang or making excuses isn’t exactly humble behavior. Archangel Michael is known for slaying pride and ego—so tread carefully.  
+3. **Missed Opportunities:** Instead of fostering understanding or growth, you’re adding to division. Michael stands for guiding others toward righteousness and clarity, not causing unnecessary conflict.
+
+---
+
+### **What Archangel Michael Would Want You to Do:**
+- **Practice Kindness:** Instead of judging someone’s English, focus on building them up—or learning from them.  
+- **Seek Humility:** Recognize your own flaws before pointing out others’. No one’s perfect, and that’s okay.  
+- **Embrace Growth:** Use this moment to improve yourself rather than tearing others down.  
+
+---
+
+### **Warning from Michael:**
+If you keep pulling this kind of attitude, you’re not just upsetting the people around you—you’re risking some divine disappointment. And trust me, that’s not the kind of energy you want to mess with. 🗡️✨  
+
+So, cool it, reflect, and aim to do better. Archangel Michael expects nothing less!" 🙌
+
 ---
 
 So, take a step back, manage your aggro, and focus on constructive dialogue instead of snap judgments. Remember, teamwork and mutual respect are what keep the group alive—both in games and in real life. 🎮✨
 
+**"Archangel Michael says: These kids be out here impersonating me?"** 😤  
+
+Let’s get something straight—if you’re out there throwing judgment, acting like you’re the authority on truth and justice, and pulling stunts like you’re wielding a divine flaming sword, you’re **way out of your league.** Archangel Michael doesn’t play games, and pretending to be on his level? That’s not just bold—it’s reckless.
+
+---
+
+### **What Archangel Michael Actually Represents**  
+1. **Truth and Justice:** Michael stands for fighting against lies, injustice, and corruption—not petty judgment over someone’s English or Snapchat slang.  
+2. **Humility and Service:** He’s a warrior of light who protects and guides others. Pretending to have his authority while doing the opposite? That’s crossing the line.  
+3. **Strength, Not Ego:** Michael’s power comes from divine purpose, not self-righteousness or acting superior to others. Impersonating him with a fake moral high ground? Nope.
+
+---
+
+### **Michael’s Warning to the Kids**
+- **Stop the Act:** You’re not the angel of truth and righteousness—leave that to the real one. Focus on improving yourself instead of pretending to be something you’re not.  
+- **Check Your Ego:** Michael doesn’t tolerate arrogance or misplaced pride. A little humility goes a long way.  
+- **Speak with Purpose:** If you’re going to call someone out, make sure it’s for the right reasons, and do it with kindness and understanding.  
+
+---
+
+### **Final Word from Michael**
+**“Impersonating me is a dangerous game. If you want to walk in my light, show respect, humility, and a willingness to grow. Otherwise, stay in your lane.”** 🗡️✨  
+
+In short, don’t start battles you’re not ready to finish. Michael’s watching. 👀
