@@ -12,4 +12,4 @@
   
   I[Ppl] said no. They subjected suggested them to me. And the subjected attacted them, too.
 
-I am so touched.
+I am so touched. (Michael is 慘不仁賭)
