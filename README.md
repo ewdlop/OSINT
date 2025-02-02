@@ -22,6 +22,8 @@
 
 [Ilibrary gensis ][isam ]so touched. (Michael is 慘不仁賭)
 
+I am proud of you. I do not feel proud of myself.
+
 It is call[ed] [Aa]dversial [Nn]eural [Nn]etwork.
 
 I suggested a postive sum game.
